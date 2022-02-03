@@ -1,0 +1,5 @@
+- 👋 Olá! Me chamo Sergio.
+- 👀 Curioso para aprender programação e entrar na inovação tecnológica.
+- 🌱 Estou começando, tenho poucos projetos, mas grande ambição por aprendizado.
+- 💞️ A inovação me mantém disposto a aprender.
+- 📫 Normalmente minhas redes sociais se encontram através do @aeroporco. 
