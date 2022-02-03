@@ -3,7 +3,8 @@
 - 🌱 Estou começando, mas tenho grande ambição por aprendizado.
 - 💞️ A inovação me mantém disposto a aprender.
 - 📫 Normalmente minhas redes sociais se encontram através do @aeroporco. 
-
+-
+- ENGLISH
 - 👋 Hello! My name is Sergio. From Brazil! 🇧🇷 
 - 👀 Curious about learning programming and enter the thecnology world.
 - 🌱 I'm starting at it, but i have so much desire for learning. 
