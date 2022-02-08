@@ -9,4 +9,4 @@
 - 👀 Curious about learning programming and enter the thecnology world.
 - 🌱 I'm starting at it, but i have so much desire for learning. 
 - 💞️ Innovation keeps me willing to learn.
-- 📫 Normally @aeroporco i'ts how you can reach me find me on most social medias. 
+- 📫 Normally @aeroporco i'ts how you can reach me on most social medias. 
