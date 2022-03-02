@@ -5,7 +5,7 @@
 - 📫 Normalmente minhas redes sociais se encontram através do @aeroporco. 
 -
 - ENGLISH
-- 👋 Hello! My name is Sergio. From Brazil! 🇧🇷 
+- 👋 Hello! My name is Sergio, from Brazil! 🇧🇷 
 - 👀 Curious about learning programming and enter the thecnology world.
 - 🌱 I'm starting at it, but i have so much desire for learning. 
 - 💞️ Innovation keeps me willing to learn.
